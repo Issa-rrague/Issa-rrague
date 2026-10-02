@@ -1,5 +1,10 @@
 ## Hi there 👋
 
+[Super Real Cool Graph]
+
+no it's not fake u're fake
+
+[Proof that u are fake]
 <!--
 **Issa-rrague/Issa-rrague** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
